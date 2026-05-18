@@ -8,7 +8,6 @@
 
 - 📱 **Phone**: +55 (16) 9 9755-4090
 - 📧 **Email**: vcnbianchi@outlook.com
-- 💼 **LinkedIn**: [in/vcnbianchi](https://www.linkedin.com/in/vcnbianchi/) 
 
 ---
 
